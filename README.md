@@ -29,7 +29,7 @@
 <br>
 <br>
 
-[![app.png](https://i.postimg.cc/N0pRhWPh/app.png)](https://postimg.cc/hJQXT3BM)
+[![practica8.png](https://i.postimg.cc/63VMd7FH/practica8.png)](https://postimg.cc/Kkz7bYGL)
 
 <br>
 <br>
